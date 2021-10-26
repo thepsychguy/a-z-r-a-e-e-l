@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @a-z-r-a-e-e-l
+- 👀 I’m interested in psychology and have recently started looking into DeFi!
